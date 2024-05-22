@@ -1,0 +1,1 @@
+edchav edava ok na ?
